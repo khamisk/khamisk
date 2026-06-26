@@ -1,3 +1,3 @@
 Software Engineer @ UofG
 
-# Interested in AI (especially agentic related stuff ) and maybe something related to cryptocurrencies? here and there
+# Interested in AI (especially agentic related stuff ) some game dev, other stuff
