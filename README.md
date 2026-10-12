@@ -1,3 +1,3 @@
 Software Engineer @ UofG
 
-# Interested in AI (especially agentic related stuff ) some game dev, other stuff
+# Interested in AI (especially agentic related ) some game dev, other things here and there
